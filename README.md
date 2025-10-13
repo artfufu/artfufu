@@ -1,6 +1,4 @@
 <div align="center">
-
-<br>
 working on this but hi im friendly i swear 
 <br>
 <br>
