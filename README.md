@@ -1,10 +1,13 @@
 <div align="center">
-working on this but hi im friendly i swear ):>
+working on this when i can
 <br>
 <br>
 <br>
 c+h / sit anytime n w2i 
-<br> <sup> i love all my cuddlers u guys are so sweet</sup>
+<br> <sup> i love all my cuddlers. im friendly i promise</sup>
 <br>
 <br>
-<img src="https://komarev.com/ghpvc/?username=artfufu&base=7906&color=grey&label=Visitors">
+<br>
+<br> i never ignore whispers, if i seem to do im afk and or asleep.
+<br>
+
