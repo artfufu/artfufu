@@ -12,7 +12,7 @@ i never ignore whispers, if i seem to do im afk and or asleep.
 <br>ㅤㅤ
   
   
-> shoutout to [my bunny](https://github.com/bnuuyyu), friends and cuddlebuddies 
+> shoutout to [my bunny](https://github.com/housepanther), friends and cuddlebuddies 
 
 
 
