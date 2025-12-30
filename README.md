@@ -5,7 +5,7 @@
 
 
 
-<img width="1500" height="500" src="https://files.catbox.moe/zky95e.jpeg" />
+<img width="500" height="500" src="https://ibb.co/LzJCM2MS" />
 <br>
 
 
