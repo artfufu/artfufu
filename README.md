@@ -1,5 +1,5 @@
 <p align="center">
-a warm welcome from my blank state page
+a warm welcome from my blank state page <img align="center" width="2%" src="https://files.catbox.moe/u256q1.gif">
 
 <details>
 <summary>links </summary>
@@ -8,4 +8,3 @@ a warm welcome from my blank state page
 <br> <sup> draw req strawpage currently closed, other links etc in wip </sup>
 </details>
 
-![B0A84295-7165-4381-81A9-914E614EEE06](https://github.com/user-attachments/assets/7d288cbc-f989-4e5b-a665-f932a6182ce3)
