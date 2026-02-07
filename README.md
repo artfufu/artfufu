@@ -1,5 +1,6 @@
 <p align="center">
-a warm welcome from my blank state page <img align="center" width="2%" src="https://files.catbox.moe/u256q1.gif">
+a warm welcome from my blank state page <img align="center" width="2%" src="https://files.catbox.moe/u256q1.gif"> im fufu
+
 
 <details>
 <summary>links </summary>
@@ -8,3 +9,13 @@ a warm welcome from my blank state page <img align="center" width="2%" src="http
 <br> <sup> draw req strawpage currently closed, other links etc in wip </sup>
 </details>
 
+~~heres a referal if youre from pt~~  
+ > *i have not worked on the link yet
+
+<br> **the _supposed_ tldr;** im always at sign. c+h all time anytime. always w2i.
+<br>
+
+<img align="center" width="20%" src="https://files.catbox.moe/rme84q.png">
+<p align="center">
+  shoutout to my friends
+<img width="1100" height="500" src="https://files.catbox.moe/d4o88h.jpeg">
