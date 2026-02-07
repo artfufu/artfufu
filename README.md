@@ -1,5 +1,5 @@
 <p align="center">
-a warm welcome to my blank state page <img align="center" width="2%" src="https://files.catbox.moe/u256q1.gif"> im fufu
+a warm welcome to my blank state page <img align="center" width="2%" src="https://files.catbox.moe/u256q1.gif"> im Fufu
 
 
 <details>
