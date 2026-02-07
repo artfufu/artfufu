@@ -1,8 +1,10 @@
+<p align="center">
+a warm welcome from my blank state page
 
-<div align="center">
-<br />
-<br />
-
-<img width="1100" height="500" src="https://files.catbox.moe/d4o88h.jpeg">
-
+<details>
+<summary>links </summary>
+<code style="color : red">-</code> <a href="https://artfufu.atabook.org/" target="_blank">ata </a>, leave me a message
+<br> <sup> unfortunately this is the only working and finished link ive made.</sup>
+<br> <sup> draw req strawpage currently closed, other links etc in wip </sup>
+</details>
 
