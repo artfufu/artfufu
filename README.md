@@ -10,7 +10,7 @@ a warm welcome from my blank state page <img align="center" width="2%" src="http
 </details>
 
 ~~heres a referal if youre from pt~~  
- > *i have not worked on the link yet
+ > *i have not worked on the link yet either
 
 <br> **the _supposed_ tldr;** im always at sign. c+h all time anytime. always w2i.
 <br>
