@@ -12,7 +12,7 @@ a warm welcome to my blank state page <img align="center" width="2%" src="https:
 ~~heres a referal if youre from pt~~  
  > *i have not worked on the link yet either
 
-<br> **the _supposed_ tldr;** im always at sign. c+h all time anytime. always w2i and refer status.
+<br> **the _supposed_ tldr;** im always at sign. c+h all time anytime. always w2i and refer status. no copy/inspo.
 <br>
 
 <img align="center" width="20%" src="https://files.catbox.moe/rme84q.png">
