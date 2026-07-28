@@ -1,7 +1,9 @@
 <h5 align="center">
   
-Do not expect replies. While online 24/7 i am not constantly *on-line*
-<br> "the" Noli of ponytown™ ([ℹ︎](https://github.com/title-town)) ([ℹ︎](https://github.com/pt-walk-of-fame))
+<br> guy who has 1 million noli skins. "the" Noli of ponytown™ ([ℹ︎](https://github.com/title-town)) ([ℹ︎](https://github.com/pt-walk-of-fame))
+<br>
+
+Do not expect replies. While online 24/7 i am not constantly *on-line* 
 
 [my wall. If you want to sign](https://walloftext.co/artfufu)
 
