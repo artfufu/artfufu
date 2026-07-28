@@ -1,6 +1,6 @@
 <h5 align="center">
   
-<br> guy who has 1 million noli skins. "the" Noli of ponytown™ ([ℹ︎](https://github.com/title-town)) ([ℹ︎](https://github.com/pt-walk-of-fame))
+<br> guy who has 1 million noli skins
 <br>
 
 Do not expect replies. While online 24/7 i am not constantly *on-line* 
